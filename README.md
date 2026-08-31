@@ -6,5 +6,5 @@
 - 🤔 Me gustaria prender mas sobre los lenguajes de programaciòn
 - 💬 Me gustaria aprender mas de 3 lenguajes y saberlos manejar
   ## Sobre mi 
-Me gustan las motos y los carros
+Me gustan las motos y los carros,
 me gusta pasar activo me gusta ir al gimnasio mi comida favorita es el sushi y el burrito 
